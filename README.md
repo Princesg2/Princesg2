@@ -9,6 +9,10 @@
 
 - 📫 How to reach me **princesg287@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1XDH8FtD3SdZEbr5ga2wxthCVvB4Gao-A/view?usp=drive_link](https://drive.google.com/file/d/1XDH8FtD3SdZEbr5ga2wxthCVvB4Gao-A/view?usp=drive_link)
+
+- ⚡ Fun fact **I think I am funny**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/princes40670795" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="princes40670795" height="30" width="40" /></a>
